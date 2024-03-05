@@ -1,16 +1,24 @@
+👋Hi, I’m  Danica C. Alambag
+@dnkkaa 🫰
+🫰
+  ----------------------------------------------------------------------------------------------------
+- A student of Eastern Visayas State University - Ormoc City Campus (EVSU-OCC).
+- 👩‍🎓Taking Bacjelor of Science in Information Technology
 
-Hi, I’m  Danica C. Alambag
-@dnkkaa ![WavingHiGIF](https://github.com/dnkkaa/dnkkaa/assets/162101637/bb1d258b-1cf4-4312-866f-3ab35e30027d)
+  ---------------------------------------------------------------------------------------------------
+🙏“Trust in the LORD with all your heart, and do not lean on your own understanding” - Proverbs 3:5
+  ----------------------------------------------------------------------------------------------------
+  
+👀 INTEREST
+  ----------------------------------------------------------------------------------------------------
+- 🎧 Watching anime and listening music
 
+📫 How to reach me?🤔
+  ----------------------------------------------------------------------------------------
 
------------------------------------------------------------------------------------------------------
-a student of Eastern Visayas State University - Ormoc City Campus (EVSU-OCC).
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me?🤔
-  danica.alambag@evsu.edu.ph
-  or visit https://www.facebook.com/danica06.conde/ for more.
-  ____________________________________________________________________________________________________
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
+  📨 danica.alambag@evsu.edu.ph
+  🌐: https://www.facebook.com/danica06.conde/
+
+🤝 PROJECTS
+  ----------------------------------------------------------------------------------------------------
+
