@@ -1,5 +1,10 @@
-![HiGIF](https://github.com/dnkkaa/dnkkaa/assets/162101637/66f731b3-4833-449c-a545-fcbb6f612b43)
-Hi, I’m  Danica C. Alambag @dnkkaa a student of Eastern Visayas State University - Ormoc City Campus (EVSU-OCC).
+
+Hi, I’m  Danica C. Alambag
+@dnkkaa ![WavingHiGIF](https://github.com/dnkkaa/dnkkaa/assets/162101637/bb1d258b-1cf4-4312-866f-3ab35e30027d)
+
+
+-----------------------------------------------------------------------------------------------------
+a student of Eastern Visayas State University - Ormoc City Campus (EVSU-OCC).
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
