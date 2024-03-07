@@ -3,7 +3,7 @@
 🫰
   ----------------------------------------------------------------------------------------------------
 - A student of Eastern Visayas State University - Ormoc City Campus (EVSU-OCC).
-- 👩‍🎓Taking Bacjelor of Science in Information Technology
+- 👩‍🎓Taking Bachelor of Science in Information Technology
 
   ---------------------------------------------------------------------------------------------------
 🙏“Trust in the LORD with all your heart, and do not lean on your own understanding” - Proverbs 3:5
